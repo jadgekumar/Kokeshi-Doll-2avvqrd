@@ -1,1 +1,0 @@
-# Kokeshi-Doll-2avvqrd
